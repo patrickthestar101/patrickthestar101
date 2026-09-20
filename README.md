@@ -1,2 +1,2 @@
 hey
-Garakhan Jalilsoy, came to Bilkent in 2026
+i am Garakhan Jalilsoy, and came to Bilkent in 2026
